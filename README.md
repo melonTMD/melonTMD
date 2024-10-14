@@ -1,3 +1,7 @@
+好事多磨，但别磨太久！ ——Me
+
+Good things take time, but don't take too long!
+
 - 👋 Hi, I’m @melonTMD
 - 👀 I’m interested in web development
 - 🌱 I’m currently learning web development
